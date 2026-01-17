@@ -22,8 +22,6 @@ I’ve been interested in AI for a while now. I’ve spent time reading and watc
 
 My biggest interest since childhood has been painting. Over time, this led me to study human anatomy on my own using books and YouTube videos. I became so interested in the subject that I even considered dedicating my life to medicine, especially becoming a surgeon. For various reasons, I decided not to follow that path and instead continue studying anatomy as a hobby.
 
-I chose to use my skills in graphic design, where I can combine creativity with my interest in form and the human body. I truly enjoy what I do and do not regret my choice.
-
 I chose to use my skills in graphic design, where I can apply my creativity and artistic abilities. I truly enjoy what I do and do not regret my choice.
 
 📚 Through these experiences, I realized that what I enjoy most is learning. I am a very curious person and like reading and watching content about anything that catches my attention. Recently, my main interest has been artificial intelligence, which is why I am excited to be part of this class!
