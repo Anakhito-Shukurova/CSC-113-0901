@@ -6,6 +6,7 @@
 ## 🌍 Background
 
 I am from a small country in Central Asia, about the size of Alaska. This is my second year in the United States and my second year studying graphic design.
+
 I speak two languages fluently and am interested in learning two more. One of the languages I would like to learn is Spanish.
 
 
