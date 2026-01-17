@@ -28,11 +28,10 @@ I chose to use my skills in graphic design, where I can apply my creativity and 
 📚 Through these experiences, I realized that what I enjoy most is learning. I am a very curious person and like reading and watching content about anything that catches my attention. Recently, my main interest has been artificial intelligence, which is why I am excited to be part of this class!
 
 
-## 📫 How to Reach Me
-
-You can reach me on GitHub or through Canvas email by searching my name.
-
-
 ## 🐞 Fun Facts About Me
 
 I love insects. If you become my friend, be ready to receive pictures of insects I find, or even for me to bring them to you in person (unless you tell me not to do it).
+
+## 📫 How to Reach Me
+
+You can reach me on GitHub or through Canvas email by searching my name.
